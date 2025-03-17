@@ -2,8 +2,7 @@
 - 👀 I’m interested in content creation, app building, AI and cyber security
 - 🌱 I’m currently learning LCNC to build an inventory managment app.
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me censoredHacker on Instagram
-- 😄 Pronouns: He/Him
+- 📫 How to reach me censoredHacker on X or Instagram
 - ⚡ Fun fact: I get into trouble fast, I get out of them even faster #cartman
 
 <!---
